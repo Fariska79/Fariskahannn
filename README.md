@@ -1,1 +1,3 @@
-# Fariskahann
+belajar
+bingung
+kasih tau dong
